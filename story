@@ -1,1 +1,2 @@
 Trey spent his weekend playing guitar for Phish infront of fans in Mexico. In his free time, he exercised and tried the local fare.
+After the weekend, the band members went back to their semi-normal lives.
